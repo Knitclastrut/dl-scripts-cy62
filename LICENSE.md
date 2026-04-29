@@ -1,4 +1,4 @@
-
+Get the ultimate deadlock scripts cheats with deadlock scripts automatic Cheats: auto-hero blink prediction & instant hero teleport. Featuring auto-hero blink prediction and
 
 
 
